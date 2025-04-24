@@ -1,3 +1,12 @@
-# EliRozalskiFencing
+# Eli Rozalski Fencing videos and pictures
 
-Testing
+
+[April NAC 2025 JNRMF](https://photos.app.goo.gl/j1NE22BNsN8WBNzM6)
+
+- [Pools](https://fencingtimelive.com/pools/details/C4559061A5274759AF05F4260185B756/2CAA45B6DD8E419FBCB6A50D9FDCE2E5/4E76B54F037843EDB76A5B2F35A829BE)
+- [Tableau](https://fencingtimelive.com/tableaus/scores/C4559061A5274759AF05F4260185B756/B28E3761BC1A448789B1AF382A4082C6)
+
+
+[April NAC 2025 DV1MF](https://photos.app.goo.gl/2uNPkGTS7MvisA8t9)
+
+- [Pools](https://fencingtimelive.com/pools/details/282B3C1F290746F1A4D807215AEA6189/B3D7E22B48D14D83A99A6BCC6A3C401F/A854112BB4D94DECB249511CFCA0ACCA)
