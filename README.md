@@ -1,5 +1,30 @@
 # Eli Rozalski Fencing videos and pictures
 
+# Single
+
+##  Double
+
+### Trip
+
+#### Quad
+
+# May 2025 SJCC
+
+## CDTMF
+- [Video](https://photos.app.goo.gl/TQ1Nxaj9Qhe1LwL18)
+- [Pools](https://fencingtimelive.com/pools/details/1D03011160C54A6C93D63787C5CA02FF/E6598834B54D405BB1037D8AD415E55A/B1ABB585B2964608B87103568297B584)
+- [Tableau](https://fencingtimelive.com/tableaus/scores/1D03011160C54A6C93D63787C5CA02FF/928076F3F5BD4EF2A78D7CE3455F9347)
+
+## JNRMF
+- [Video](https://photos.app.goo.gl/KHaKEZhj3XmJCtWG6)
+- [Pools](https://fencingtimelive.com/pools/details/BFB56A5BFF804435AD54FDD5AAB1D672/4B72038B97E847EEB0FC2BF6705ADFA8/8182FE03469D40B7BE1B98DB5B4B9F5F)
+- [Tableau](https://fencingtimelive.com/tableaus/scores/BFB56A5BFF804435AD54FDD5AAB1D672/5CA03ADFA83F4D3C8AA15104F252325B)
+
+
+---
+
+
+
 
 [May 2025 SJCC CDTMF](https://photos.app.goo.gl/TQ1Nxaj9Qhe1LwL18)
 - [Pools](https://fencingtimelive.com/pools/details/1D03011160C54A6C93D63787C5CA02FF/E6598834B54D405BB1037D8AD415E55A/B1ABB585B2964608B87103568297B584)
