@@ -1,32 +1,31 @@
 # Eli Rozalski Fencing videos and pictures
 
-# Single
-
-##  Double
-
-### Trip
-
-#### Quad
-
-# May 2025 SJCC
-
-## CDTMF
-- [Video](https://photos.app.goo.gl/TQ1Nxaj9Qhe1LwL18)
-- [Pools](https://fencingtimelive.com/pools/details/1D03011160C54A6C93D63787C5CA02FF/E6598834B54D405BB1037D8AD415E55A/B1ABB585B2964608B87103568297B584)
-- [Tableau](https://fencingtimelive.com/tableaus/scores/1D03011160C54A6C93D63787C5CA02FF/928076F3F5BD4EF2A78D7CE3455F9347)
-
-## JNRMF
-- [Video](https://photos.app.goo.gl/KHaKEZhj3XmJCtWG6)
-- [Pools](https://fencingtimelive.com/pools/details/BFB56A5BFF804435AD54FDD5AAB1D672/4B72038B97E847EEB0FC2BF6705ADFA8/8182FE03469D40B7BE1B98DB5B4B9F5F)
-- [Tableau](https://fencingtimelive.com/tableaus/scores/BFB56A5BFF804435AD54FDD5AAB1D672/5CA03ADFA83F4D3C8AA15104F252325B)
+<!-- a comment?? -->
 
 
+## 2025
 ---
 
 
 
 
-[May 2025 SJCC CDTMF](https://photos.app.goo.gl/TQ1Nxaj9Qhe1LwL18)
+[2025 WWD Championships SNRXF](https://photos.app.goo.gl/sun2yYKuXZCoANrG7)
+- [Pools](https://www.fencingtimelive.com/pools/details/032DCC65B5FA422BA35E1B26BB57683B/4BBB9B0C0E264FB89D2AA39107804C96/F9F88E6E8963428D9CDF5173B64354BF)
+- [Tableau](https://www.fencingtimelive.com/tableaus/scores/032DCC65B5FA422BA35E1B26BB57683B/7D31D14BF909442BB06B74C1D015E219)
+
+
+[2025 WWD Championships SNRXS](https://photos.app.goo.gl/qcpL5LS8gDB889dFA)
+- [Pools](https://www.fencingtimelive.com/pools/details/546373468E2147388FC778AB59FD74E8/F8B923A2E0F74EAD80DD5EA745499CED/E6C9B50876D044A7A270A967B09EA204)
+- [Tableau](https://www.fencingtimelive.com/tableaus/scores/546373468E2147388FC778AB59FD74E8/E076414CEFA54CB6A2E29E568EEE95BE)
+
+
+[2025 WWD Championships SNRXE](https://photos.app.goo.gl/dkCR72B4PzaPnpTy8)
+- [Pools](https://www.fencingtimelive.com/pools/details/94941B2914C54F518E4008188CDB6FBD/2B3557427CD04B00B608D215CB18DDE7/C3F49EE4847A4E42928F48C73EE461A7)
+- [Tableau](https://www.fencingtimelive.com/tableaus/scores/94941B2914C54F518E4008188CDB6FBD/6C66A6F37BA94B7699430F238983C86A)
+
+---
+
+[2025 May SJCC CDTMF](https://photos.app.goo.gl/TQ1Nxaj9Qhe1LwL18)
 - [Pools](https://fencingtimelive.com/pools/details/1D03011160C54A6C93D63787C5CA02FF/E6598834B54D405BB1037D8AD415E55A/B1ABB585B2964608B87103568297B584)
 - [Tableau](https://fencingtimelive.com/tableaus/scores/1D03011160C54A6C93D63787C5CA02FF/928076F3F5BD4EF2A78D7CE3455F9347)
 
@@ -35,6 +34,7 @@
 - [Tableau](https://fencingtimelive.com/tableaus/scores/BFB56A5BFF804435AD54FDD5AAB1D672/5CA03ADFA83F4D3C8AA15104F252325B)
 
 
+---
 
 [April NAC 2025 JNRMF](https://photos.app.goo.gl/j1NE22BNsN8WBNzM6)
 
@@ -45,3 +45,69 @@
 [April NAC 2025 DV1MF](https://photos.app.goo.gl/2uNPkGTS7MvisA8t9)
 
 - [Pools](https://fencingtimelive.com/pools/details/282B3C1F290746F1A4D807215AEA6189/B3D7E22B48D14D83A99A6BCC6A3C401F/A854112BB4D94DECB249511CFCA0ACCA)
+
+
+---
+
+[Fortune Fencing RJCC Spring 2025 JNRMF](https://photos.app.goo.gl/pBSoEGastr6tkRc57)
+- [Pools](https://www.fencingtimelive.com/pools/details/1EFE22E472164D39B765AC4D47FF496E/6F1AE9B864E04ED9B719FDF9E6E36E82/3FD40FAB72F94EABBDC3CB6735151FBA)
+- [Tableau](https://www.fencingtimelive.com/tableaus/scores/1EFE22E472164D39B765AC4D47FF496E/5F6C900E957F4CE5A8E54841094EAB0B)
+
+[Fortune Fencing RJCC Spring 2025 CDTMF](https://photos.app.goo.gl/heeq4BShoPHuEAQbA)
+- [Pools](https://www.fencingtimelive.com/pools/details/50804D02762E41A8BFC99BE5AE908A28/E4E0ADEA578143F4A34BA5C8F3694F05/51F208D4B01543268956150A815A4CB7)
+- [Tableau](https://www.fencingtimelive.com/tableaus/scores/50804D02762E41A8BFC99BE5AE908A28/29696AC793CD4743920DFD98697D7DB3)
+
+
+---
+
+[2025 Portland  ROC D1AMF](https://photos.app.goo.gl/rzL1oqhZtagy7EGo9)
+- [Pools](https://www.fencingtimelive.com/pools/details/B9D1FCE64E4748D89595BF7B44BED437/623CE9D457C74792B0503E678E2CB108/B77272019A5C4EB2AE796FB069306B4E)
+- [Tableau](https://www.fencingtimelive.com/tableaus/scores/B9D1FCE64E4748D89595BF7B44BED437/BFA8F961DC4944B4BED7F1160E8FFE6B)
+
+---
+
+[Rain City Spring RJCC 2025 JNRMF](https://photos.app.goo.gl/T4B7H4hwWhZQh3st6)
+- [Pools](https://www.fencingtimelive.com/pools/details/48BD245F141C4868BAA1DD6F7BA23365/7A607A2113AF43908C3A4E75F86F9A46/8A74989161914FCCA428404C805C627F)
+- [Tableau](https://www.fencingtimelive.com/tableaus/scores/48BD245F141C4868BAA1DD6F7BA23365/31ABCBEEBA8541C48F1D23E7C5D7B9BB)
+
+---
+
+[2025 Junior Olympics CDTMF](https://photos.app.goo.gl/AZWJntRtwkbNMhHu8)
+- [Pools](https://www.fencingtimelive.com/pools/details/8F659D33C763444EB4C0E83060BF9EA4/D73641A51D77434C92147BFB1CDD574B/269C5C8BA0294C39864F78AD274A6F62)
+- [Tableau](https://www.fencingtimelive.com/tableaus/scores/8F659D33C763444EB4C0E83060BF9EA4/112C8D74000D42CE93D9BC0A42A02234)
+---
+
+[zzz](uuu)
+- [Pools](uuu)
+- [Tableau](uuu)
+
+---
+
+[zzz](uuu)
+- [Pools](uuu)
+- [Tableau](uuu)
+---
+
+[zzz](uuu)
+- [Pools](uuu)
+- [Tableau](uuu)
+---
+
+[zzz](uuu)
+- [Pools](uuu)
+- [Tableau](uuu)
+---
+
+[zzz](uuu)
+- [Pools](uuu)
+- [Tableau](uuu)
+
+<!--
+
+---
+
+[zzz](uuu)
+- [Pools](uuu)
+- [Tableau](uuu)
+
+-->
