@@ -75,13 +75,10 @@
 [2025 Junior Olympics CDTMF](https://photos.app.goo.gl/AZWJntRtwkbNMhHu8)
 - [Pools](https://www.fencingtimelive.com/pools/details/8F659D33C763444EB4C0E83060BF9EA4/D73641A51D77434C92147BFB1CDD574B/269C5C8BA0294C39864F78AD274A6F62)
 - [Tableau](https://www.fencingtimelive.com/tableaus/scores/8F659D33C763444EB4C0E83060BF9EA4/112C8D74000D42CE93D9BC0A42A02234)
----
 
 [2025 Junior Olympics JNRMF](https://photos.app.goo.gl/ydCHoX2jr8dwuF6R7)
 - [Pools](https://www.fencingtimelive.com/pools/details/1AC3C13A156F42EF8CE520226EE2520A/EE556EF4E9BF4809945724F53E81A553/7A3CB959C7C749DEBDFFFA59C4004DDF)
 - [Tableau](https://www.fencingtimelive.com/tableaus/scores/1AC3C13A156F42EF8CE520226EE2520A/73ACCABE4A2B4D418BE331772FF85DA2)
-
----
 
 [2025 Junior Olympics DV1MF](https://photos.app.goo.gl/HxdcVUCytgAM2VP8A)
 - [Pools](https://www.fencingtimelive.com/pools/details/96EACD79DF4D49A28C10E944716E308C/57C212C55AD4454B89A064C2AF6F578F/3C4F7F2DC9CE4D0189A5E64B73AA1648)
