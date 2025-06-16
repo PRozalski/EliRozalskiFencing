@@ -6,8 +6,11 @@
 ## 2025
 ---
 
+[Western Washington Foil/Epee Challenge #6 SNRXF](https://photos.app.goo.gl/5QUdN8rDT7AzVTTq5)
+- [Pools](https://www.fencingtimelive.com/pools/details/8A3E02B69888496EA03EF3A0F939EA9D/0983EA208BF0475DAB5AC6DD58BBBD26/278C5B0DE35046858FEF51AE22C71490)
+- [Tableau](https://www.fencingtimelive.com/tableaus/scores/8A3E02B69888496EA03EF3A0F939EA9D/996AB7127EB44A40B97C09B14A5CD9FC)
 
-
+---
 
 [2025 WWD Championships SNRXF](https://photos.app.goo.gl/sun2yYKuXZCoANrG7)
 - [Pools](https://www.fencingtimelive.com/pools/details/032DCC65B5FA422BA35E1B26BB57683B/4BBB9B0C0E264FB89D2AA39107804C96/F9F88E6E8963428D9CDF5173B64354BF)
