@@ -5,8 +5,14 @@
 
 ## 2025
 ---
-[Summer Nationals 2025 SNRMF](https://photos.app.goo.gl/rtWRBS9bdAeocQHo9)
 
+[Summer Nationals 2025 DV1MF](https://photos.app.goo.gl/equvWUSTG6M9YqKF6)
+- [Pools](https://fencingtimelive.com/pools/details/DF5CFADE038E497D8069D5F1D0F8DFF6/3F3C1842F83941D897A2BEB79BDC3479/975EC75B40B04C38BF8AFECD298AF6DF)
+- [Tableau](https://fencingtimelive.com/tableaus/scores/DF5CFADE038E497D8069D5F1D0F8DFF6/DB8906664F4C400985812BF4E79CFDFF)
+
+[Summer Nationals 2025 SNRMF](https://photos.app.goo.gl/rtWRBS9bdAeocQHo9)
+- [Pools](https://fencingtimelive.com/pools/details/083D341A113843A3876A8314A09AEF0D/82DE7510FBBF4FDEAEAFA240B99E9924/37D4AEA1894242A0919FD71884EB0DAC)
+- [Tableau](https://fencingtimelive.com/tableaus/scores/083D341A113843A3876A8314A09AEF0D/28B9AD9F783C46D8BB194B86AB9BE377)
 
 ---
 
