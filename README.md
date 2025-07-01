@@ -3,6 +3,13 @@
 <!-- a comment?? -->
 
 
+<!-- Tips
+
+https://photos.app.goo.gl/agNn1Mgh9iq5oP3p6
+
+-->
+
+
 ## 2025
 ---
 
