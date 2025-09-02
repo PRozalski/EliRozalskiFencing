@@ -12,6 +12,26 @@ https://photos.app.goo.gl/agNn1Mgh9iq5oP3p6
 
 ## 2025
 ---
+
+[2025 Fall Fortune Fencing CDTMF](https://photos.app.goo.gl/vDdLjKLBa4wdvjra9)
+- [Pools](https://fencingtimelive.com/pools/details/AEFCC5EE70274DE48352CC62DAAFE65C/56BAFA8D9DD44AED8619D3279FE5481E/61DB6D46295A423CA334BC48AF4B300F)
+- [Tableau](https://fencingtimelive.com/tableaus/scores/AEFCC5EE70274DE48352CC62DAAFE65C/B2F8FE5054324D50B38137AF19CB941B)
+- [2/78](https://fencingtimelive.com/events/results/AEFCC5EE70274DE48352CC62DAAFE65C)
+- [YouTube Final](https://www.youtube.com/watch?v=Wj5XeKDas0M)
+
+
+[2025 Fall Fortune Fencing D1AMF](https://photos.app.goo.gl/mDCxDxkZhccV1d637)
+- [Pools](https://fencingtimelive.com/pools/details/C0AAAC74933C4DA19BFFB2CED5E7D51E/42E73D1E356C49DF964DA08C492E3414/909057023D534E98A184605A77A63C23)
+- [Tableau](https://fencingtimelive.com/tableaus/scores/C0AAAC74933C4DA19BFFB2CED5E7D51E/67960C41D4CC4541A2A1280BFF576236)
+- [3/79](https://fencingtimelive.com/events/results/C0AAAC74933C4DA19BFFB2CED5E7D51E)
+- [YouTube Final](https://www.youtube.com/watch?v=6oTHZRK84Lg)
+
+[2025 Fall Fortune Fencing JNRMF](https://photos.app.goo.gl/fvbkEf9GiCyUUUhK9)
+- [Pools](https://fencingtimelive.com/pools/details/55C133793AB140A0AA3D083CC92A86A7/FF85C403BD3C4C8E9D388F5FDA928A77/27ABFDD75C114877BDBD1DEE7E8FA126)
+- [Tableau](https://fencingtimelive.com/tableaus/scores/55C133793AB140A0AA3D083CC92A86A7/3AFB126F7C3D4B3AA03903879CCD862B)
+- [57/94](https://fencingtimelive.com/events/results/55C133793AB140A0AA3D083CC92A86A7)
+
+---
 [Summer Nationals 2025 D1AMF](https://photos.app.goo.gl/chyb8YYScQNT9xFPA)
 - [Pools](https://fencingtimelive.com/pools/details/9FB2F6BCE6264DFD8C830BBD91D74E41/1FA058A13FE14FF3BE9D80C7B0DCC821/8A8AD82275BA4197BB47D1043C72FA7B)
 - [Tableau](https://fencingtimelive.com/tableaus/scores/9FB2F6BCE6264DFD8C830BBD91D74E41/DA535714417B434CA3A1EB5465B6D8A4)
