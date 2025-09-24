@@ -12,6 +12,12 @@ https://photos.app.goo.gl/agNn1Mgh9iq5oP3p6
 
 ## 2025
 ---
+[Bladerunner D1AMF]()
+- [Pools](https://www.fencingtimelive.com/pools/details/ACDAA5DBD02C4788A686D69259E8B679/7F9587026676462398F347AF7ACA1F4F/0E848F50C8AD4EC4A69785FDE493BF7F)
+- [Tableau](https://www.fencingtimelive.com/tableaus/scores/ACDAA5DBD02C4788A686D69259E8B679/EFE31B2C31A940FC81FC690AD21214D3)
+- [9/71](https://www.fencingtimelive.com/events/results/ACDAA5DBD02C4788A686D69259E8B679)
+
+
 [Bladerunner JNRMF](
 https://photos.app.goo.gl/tx63XiCpoPHH6VZ28)
 - [Pools](https://fencingtimelive.com/pools/details/0D143B4F62434172B13EE850B03440A9/0C943980D1554E7F850641A31FC7FDAC/64EDADF3E5404EBD9FE0C391F45EB4E3)
