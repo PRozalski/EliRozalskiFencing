@@ -12,6 +12,13 @@ https://photos.app.goo.gl/agNn1Mgh9iq5oP3p6
 
 ## 2025
 ---
+[Bladerunner JNRMF](
+https://photos.app.goo.gl/tx63XiCpoPHH6VZ28)
+- [Pools](https://fencingtimelive.com/pools/details/0D143B4F62434172B13EE850B03440A9/0C943980D1554E7F850641A31FC7FDAC/64EDADF3E5404EBD9FE0C391F45EB4E3)
+- [Tableau](https://fencingtimelive.com/tableaus/scores/0D143B4F62434172B13EE850B03440A9/27F04E5E7C5642D49A00EF611EACE71A)
+- [21/69](https://fencingtimelive.com/events/results/0D143B4F62434172B13EE850B03440A9)
+
+---
 
 [2025 Fall Fortune Fencing CDTMF](https://photos.app.goo.gl/vDdLjKLBa4wdvjra9)
 - [Pools](https://fencingtimelive.com/pools/details/AEFCC5EE70274DE48352CC62DAAFE65C/56BAFA8D9DD44AED8619D3279FE5481E/61DB6D46295A423CA334BC48AF4B300F)
