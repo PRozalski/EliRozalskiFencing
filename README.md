@@ -12,6 +12,13 @@ https://photos.app.goo.gl/agNn1Mgh9iq5oP3p6
 
 ## 2025
 ---
+
+[Leon Auriol Open D1AMF](https://photos.app.goo.gl/NfadT3upKwQeuvpd8)
+- [Pools](https://fencingtimelive.com/pools/details/BCD21CCC428C408C8FE06332B662B040/380C28F0663846E5BBD6D463089652EE/B6D056C360AA4D69A68BF0A05C0F4345)
+- [Tableau](https://fencingtimelive.com/tableaus/scores/BCD21CCC428C408C8FE06332B662B040/7EF751CDEC6E44C38D2C1F2BC52B6162)
+- [3/47](https://fencingtimelive.com/events/results/BCD21CCC428C408C8FE06332B662B040)
+
+---
 [Bladerunner D1AMF]()
 - [Pools](https://www.fencingtimelive.com/pools/details/ACDAA5DBD02C4788A686D69259E8B679/7F9587026676462398F347AF7ACA1F4F/0E848F50C8AD4EC4A69785FDE493BF7F)
 - [Tableau](https://www.fencingtimelive.com/tableaus/scores/ACDAA5DBD02C4788A686D69259E8B679/EFE31B2C31A940FC81FC690AD21214D3)
