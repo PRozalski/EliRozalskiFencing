@@ -7,10 +7,33 @@
 
 https://photos.app.goo.gl/agNn1Mgh9iq5oP3p6
 
+
+[MF]()
+- [Pools]()
+- [Tableau]()
+- []()
+
 -->
 
 
 ## 2025
+---
+
+[October NAC DV1MF](https://photos.app.goo.gl/dZubwDxuCP4LbwmA9)
+- [Pools](https://fencingtimelive.com/pools/details/0EA1FF3A8FC64AF8B590403876D49E15/10103EA16176456D8343B7BB4C4C84CA/489BF47D0E484882A3273C9AAA586832)
+- [Tableau](https://fencingtimelive.com/tableaus/scores/0EA1FF3A8FC64AF8B590403876D49E15/BF21CAA18B6B44C8AB5855EF1B6B8B90)
+- [105/258](https://fencingtimelive.com/events/results/0EA1FF3A8FC64AF8B590403876D49E15)
+
+[October NAC JNRMF](https://photos.app.goo.gl/pmwKsJUdwZGVwBsg6)
+- [Pools](https://fencingtimelive.com/pools/details/8E40A06BCC0B491E8E066E4783CB5CF4/4071A43974064EEDB28E804DF847DAB7/24D2879D32AA45D494E951B56A9F579B)
+- [Tableau](https://fencingtimelive.com/tableaus/scores/8E40A06BCC0B491E8E066E4783CB5CF4/CB21BD1111E84914A387953EB637A1AE)
+- [136/298](https://fencingtimelive.com/events/results/8E40A06BCC0B491E8E066E4783CB5CF4)
+
+[October NAC CDTMF](https://photos.app.goo.gl/GJnBvGEbXkCMdyVv6)
+- [Pools](https://fencingtimelive.com/pools/details/675800E9E0734E96AB80427356B196ED/B7453EAA033F4B4DA428146F80BB0550/52FF5DA848B44C16B84B1EF8F5900EFF)
+- [Tableau](https://fencingtimelive.com/tableaus/scores/675800E9E0734E96AB80427356B196ED/98A82633F4944284A9682B483182E22A)
+- [53/185](https://fencingtimelive.com/events/results/675800E9E0734E96AB80427356B196ED)
+
 ---
 
 [Leon Auriol Open D1AMF](https://photos.app.goo.gl/NfadT3upKwQeuvpd8)
