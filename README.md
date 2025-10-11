@@ -19,6 +19,14 @@ https://photos.app.goo.gl/agNn1Mgh9iq5oP3p6
 ## 2025
 ---
 
+
+[Rain City Fall RJCC+Div II ROC JNRMF](https://photos.app.goo.gl/zHa8msiKYWHChKAs6)
+- [Pools](https://fencingtimelive.com/pools/details/8089E432EF5C416E9415F248AC2CD4B8/EBCCC7AFC7E84B67B359C98034D7F8A6/8B5F0D033DDE4678A778E8232C6ABF08)
+- [Tableau](https://fencingtimelive.com/tableaus/scores/8089E432EF5C416E9415F248AC2CD4B8/E1970DAF15134D87A4E6526CC5EA703D)
+- [3/45](https://fencingtimelive.com/events/results/8089E432EF5C416E9415F248AC2CD4B8)
+
+
+
 [October NAC DV1MF](https://photos.app.goo.gl/dZubwDxuCP4LbwmA9)
 - [Pools](https://fencingtimelive.com/pools/details/0EA1FF3A8FC64AF8B590403876D49E15/10103EA16176456D8343B7BB4C4C84CA/489BF47D0E484882A3273C9AAA586832)
 - [Tableau](https://fencingtimelive.com/tableaus/scores/0EA1FF3A8FC64AF8B590403876D49E15/BF21CAA18B6B44C8AB5855EF1B6B8B90)
