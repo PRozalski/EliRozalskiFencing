@@ -25,7 +25,7 @@ https://photos.app.goo.gl/agNn1Mgh9iq5oP3p6
 - [Tableau](https://fencingtimelive.com/tableaus/scores/8089E432EF5C416E9415F248AC2CD4B8/E1970DAF15134D87A4E6526CC5EA703D)
 - [3/45](https://fencingtimelive.com/events/results/8089E432EF5C416E9415F248AC2CD4B8)
 
-
+---
 
 [October NAC DV1MF](https://photos.app.goo.gl/dZubwDxuCP4LbwmA9)
 - [Pools](https://fencingtimelive.com/pools/details/0EA1FF3A8FC64AF8B590403876D49E15/10103EA16176456D8343B7BB4C4C84CA/489BF47D0E484882A3273C9AAA586832)
