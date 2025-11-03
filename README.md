@@ -19,6 +19,24 @@ https://photos.app.goo.gl/agNn1Mgh9iq5oP3p6
 ## 2025
 ---
 
+[AFM Super Regional D1AMF](https://photos.app.goo.gl/ZLrqmDzjRTfNBbQ86)
+- [Pools](https://fencingtimelive.com/pools/details/55C84EDC43C5453298AEECC091E063CB/45C42E7342CB411793356D6FC5F8A5D6/DCA76BB5D8F54719881F928337A72ACB)
+- [Tableau](https://fencingtimelive.com/tableaus/scores/55C84EDC43C5453298AEECC091E063CB/DB2F56A38AA64D41AE284C4D2179A4F2)
+- [22T/65]](https://fencingtimelive.com/events/results/55C84EDC43C5453298AEECC091E063CB)
+
+[AFM Super Regional CDTMF](https://photos.app.goo.gl/KENyxipVVzTzvEbC7)
+- [Pools](https://fencingtimelive.com/pools/details/532598C91C954F518BD7CC7329077EC7/A74B2DE9BEC74933B7AB6FCCF2982855/1B3FB95D7C0E4AFABCFA53B321EF29C1)
+- [Tableau](https://fencingtimelive.com/tableaus/scores/532598C91C954F518BD7CC7329077EC7/095BCB62E85E446696C7932F9180B372)
+- [15/122](https://fencingtimelive.com/events/results/532598C91C954F518BD7CC7329077EC7)
+
+[AFM Super Regional JNRMF](https://photos.app.goo.gl/CiqwuSg9WoBhTBhW6)
+- [Pools](https://fencingtimelive.com/pools/details/CAC3D47A42EE4150A95021B47DB43F2B/72296BEC8FB5492891FB0A2A93409922/75B8E3AA03C34B2786A0D59156632E69)
+- [Tableau](https://fencingtimelive.com/tableaus/scores/CAC3D47A42EE4150A95021B47DB43F2B/6BFAA578256A40E6A35AA67F2533469B)
+- [3/67](https://fencingtimelive.com/events/results/CAC3D47A42EE4150A95021B47DB43F2B)
+
+
+---
+
 
 [Rain City Fall RJCC+Div II ROC JNRMF](https://photos.app.goo.gl/zHa8msiKYWHChKAs6)
 - [Pools](https://fencingtimelive.com/pools/details/8089E432EF5C416E9415F248AC2CD4B8/EBCCC7AFC7E84B67B359C98034D7F8A6/8B5F0D033DDE4678A778E8232C6ABF08)
@@ -185,10 +203,6 @@ https://photos.app.goo.gl/tx63XiCpoPHH6VZ28)
 - [Tableau](https://www.fencingtimelive.com/tableaus/scores/96EACD79DF4D49A28C10E944716E308C/CE97C4308756461C91AC106A961B34FB)
 ---
 
-[zzz](uuu)
-- [Pools](uuu)
-- [Tableau](uuu)
----
 
 [zzz](uuu)
 - [Pools](uuu)
