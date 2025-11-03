@@ -22,7 +22,7 @@ https://photos.app.goo.gl/agNn1Mgh9iq5oP3p6
 [AFM Super Regional D1AMF](https://photos.app.goo.gl/ZLrqmDzjRTfNBbQ86)
 - [Pools](https://fencingtimelive.com/pools/details/55C84EDC43C5453298AEECC091E063CB/45C42E7342CB411793356D6FC5F8A5D6/DCA76BB5D8F54719881F928337A72ACB)
 - [Tableau](https://fencingtimelive.com/tableaus/scores/55C84EDC43C5453298AEECC091E063CB/DB2F56A38AA64D41AE284C4D2179A4F2)
-- [22T/65]](https://fencingtimelive.com/events/results/55C84EDC43C5453298AEECC091E063CB)
+- [22T/65](https://fencingtimelive.com/events/results/55C84EDC43C5453298AEECC091E063CB)
 
 [AFM Super Regional CDTMF](https://photos.app.goo.gl/KENyxipVVzTzvEbC7)
 - [Pools](https://fencingtimelive.com/pools/details/532598C91C954F518BD7CC7329077EC7/A74B2DE9BEC74933B7AB6FCCF2982855/1B3FB95D7C0E4AFABCFA53B321EF29C1)
