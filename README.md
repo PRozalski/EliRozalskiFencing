@@ -22,15 +22,15 @@ https://photos.app.goo.gl/agNn1Mgh9iq5oP3p6
 - [Tableau](https://fencingtimelive.com/tableaus/scores/E65DE612BFF14D2E881D52EAEE093234/9555E39278BF40968DBA5C302B0F240F)
 - [2/3](https://fencingtimelive.com/events/results/E65DE612BFF14D2E881D52EAEE093234)
 
-[November NAC CDTTMMF]()
-- [Pools]()
-- [Tableau]()
-- []()
+[November NAC DV1MF](https://photos.app.goo.gl/EDxrxAEuZgfmPWE69)
+- [Pools](https://fencingtimelive.com/pools/details/9AE15661D7074202B6C778C56182574E/4F35A8FAE6DF4B1399DD57FD6A3EC45F/2432C7623F9145AB848442AF1F5154A4)
+- [Tableau](https://fencingtimelive.com/tableaus/scores/9AE15661D7074202B6C778C56182574E/D10F57A224594EAA868693C9CB0CFEAF)
+- [183T/273](https://fencingtimelive.com/events/results/9AE15661D7074202B6C778C56182574E)
 
-[November NAC CDTTMMF]()
-- [Pools]()
-- [Tableau]()
-- []()
+[November NAC CDTMF](https://photos.app.goo.gl/QzpfA1LzYWQ3yka98)
+- [Pools](https://fencingtimelive.com/pools/details/FAD2F297B9204B21B4421AAB47CE33E1/3571CB16DCB045418CA1EDD10C76C79C/9B64DEEE81FB470D814113543D89D8DB)
+- [Tableau](https://fencingtimelive.com/tableaus/scores/FAD2F297B9204B21B4421AAB47CE33E1/EBD0F6C4F903435E9BB0314125BAD96E)
+- [61/233](https://fencingtimelive.com/events/results/FAD2F297B9204B21B4421AAB47CE33E1)
 
 ---
 
@@ -218,15 +218,6 @@ https://photos.app.goo.gl/tx63XiCpoPHH6VZ28)
 - [Tableau](https://www.fencingtimelive.com/tableaus/scores/96EACD79DF4D49A28C10E944716E308C/CE97C4308756461C91AC106A961B34FB)
 ---
 
-
-[zzz](uuu)
-- [Pools](uuu)
-- [Tableau](uuu)
----
-
-[zzz](uuu)
-- [Pools](uuu)
-- [Tableau](uuu)
 
 <!--
 
