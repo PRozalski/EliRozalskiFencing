@@ -21,6 +21,7 @@ https://photos.app.goo.gl/agNn1Mgh9iq5oP3p6
 [November NAC CDTTMMF](https://photos.app.goo.gl/uKFgYSsXQCo3DsCL9)
 - [Tableau](https://fencingtimelive.com/tableaus/scores/E65DE612BFF14D2E881D52EAEE093234/9555E39278BF40968DBA5C302B0F240F)
 - [2/3](https://fencingtimelive.com/events/results/E65DE612BFF14D2E881D52EAEE093234)
+- [YouTube Final](https://www.youtube.com/watch?v=2ptZF4C5qUg&t=1248s)
 
 [November NAC DV1MF](https://photos.app.goo.gl/EDxrxAEuZgfmPWE69)
 - [Pools](https://fencingtimelive.com/pools/details/9AE15661D7074202B6C778C56182574E/4F35A8FAE6DF4B1399DD57FD6A3EC45F/2432C7623F9145AB848442AF1F5154A4)
