@@ -18,6 +18,11 @@ https://photos.app.goo.gl/agNn1Mgh9iq5oP3p6
 ## 2025
 ---
 
+[Home for the Holidays Open](https://photos.app.goo.gl/yToq1e3E83KoUtg28)
+- [Pools](https://fencingtimelive.com/pools/details/0F414511125D4D448F8E196DB68750C0/E450E5EFAFE14EC2AFC80A2612F5271E/37FA7D98FE33442281AFB9E7F20B5758)
+- [Tableau](https://fencingtimelive.com/tableaus/scores/0F414511125D4D448F8E196DB68750C0/54C7BDC4B145456DAE2FB20966C2B5F0)
+- [2/30](https://fencingtimelive.com/events/results/0F414511125D4D448F8E196DB68750C0)
+
 [November NAC CDTTMMF](https://photos.app.goo.gl/uKFgYSsXQCo3DsCL9)
 - [Tableau](https://fencingtimelive.com/tableaus/scores/E65DE612BFF14D2E881D52EAEE093234/9555E39278BF40968DBA5C302B0F240F)
 - [2/3](https://fencingtimelive.com/events/results/E65DE612BFF14D2E881D52EAEE093234)
