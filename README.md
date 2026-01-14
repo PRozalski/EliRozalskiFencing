@@ -15,6 +15,21 @@ https://photos.app.goo.gl/agNn1Mgh9iq5oP3p6
 
 -->
 
+## 2026
+---
+
+[Junior Olympics CDTMF](https://photos.app.goo.gl/mVLCp1C3ueXukLL66)
+- [Pools](https://fencingtimelive.com/pools/details/5344A724EBEC4E7B8048F1483FA766EE/D14FD2317EAD48BC9FAE2E3356CD654C/4BE5248EB18E484B9330E52D78565697)
+- [Tableau](https://fencingtimelive.com/tableaus/scores/5344A724EBEC4E7B8048F1483FA766EE/A03A267125824955A98DA334205C1E7E)
+- [53/272](https://fencingtimelive.com/events/results/5344A724EBEC4E7B8048F1483FA766EE)
+
+[Junior Olympics JNRMF](https://photos.app.goo.gl/W6rMwdSufuhwFkb59)
+- [Pools](https://fencingtimelive.com/pools/details/F5EA6F895F7F46379CBFD96E44307A03/8B1CD85D0B934B1D8D39195AC70C3E9E/0A8EADA4E95F43DB86DEA601CC0F0A71)
+- [Tableau](https://fencingtimelive.com/tableaus/scores/F5EA6F895F7F46379CBFD96E44307A03/CFD6321833E54220BFC21F12D71DC1D0)
+- [94/311](https://fencingtimelive.com/events/results/F5EA6F895F7F46379CBFD96E44307A03)
+
+---
+
 ## 2025
 ---
 
