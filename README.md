@@ -18,6 +18,13 @@ https://photos.app.goo.gl/agNn1Mgh9iq5oP3p6
 ## 2026
 ---
 
+[Battle in Seattle D1AMF](https://photos.app.goo.gl/8J2XH8pJGGGJGN5a7)
+- [Pools](https://fencingtimelive.com/tableaus/scores/A4BFAA26F7474D308BAC3A546CC9D227/DE10190225A34F43AEAD315D8DB8D9C0)
+- [Tableau](https://fencingtimelive.com/tableaus/scores/A4BFAA26F7474D308BAC3A546CC9D227/DE10190225A34F43AEAD315D8DB8D9C0)
+- [3T/56](https://photos.app.goo.gl/8J2XH8pJGGGJGN5a7)
+
+---
+
 [Junior Olympics CDTMF](https://photos.app.goo.gl/mVLCp1C3ueXukLL66)
 - [Pools](https://fencingtimelive.com/pools/details/5344A724EBEC4E7B8048F1483FA766EE/D14FD2317EAD48BC9FAE2E3356CD654C/4BE5248EB18E484B9330E52D78565697)
 - [Tableau](https://fencingtimelive.com/tableaus/scores/5344A724EBEC4E7B8048F1483FA766EE/A03A267125824955A98DA334205C1E7E)
