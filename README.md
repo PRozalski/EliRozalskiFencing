@@ -18,6 +18,13 @@ https://photos.app.goo.gl/agNn1Mgh9iq5oP3p6
 ## 2026
 ---
 
+[Portland RJCC Spring JNRMF](https://photos.app.goo.gl/W5GNXSidCtzQ5LBz5)
+- [Pools](https://fencingtimelive.com/pools/details/688941C0959044A39B9DA398058FDABC/7BD4D4D221C74BDCA93A0AC71E53CAE7/A328CACF2D914E3A9FE51A0EC93627FA)
+- [Tableau](https://fencingtimelive.com/tableaus/scores/688941C0959044A39B9DA398058FDABC/98CF6E9AEE9E4A9D8424ADC172E8E869)
+- [12/18](https://fencingtimelive.com/events/results/688941C0959044A39B9DA398058FDABC)
+
+---
+
 [Battle in Seattle D1AMF](https://photos.app.goo.gl/8J2XH8pJGGGJGN5a7)
 - [Pools](https://fencingtimelive.com/tableaus/scores/A4BFAA26F7474D308BAC3A546CC9D227/DE10190225A34F43AEAD315D8DB8D9C0)
 - [Tableau](https://fencingtimelive.com/tableaus/scores/A4BFAA26F7474D308BAC3A546CC9D227/DE10190225A34F43AEAD315D8DB8D9C0)
