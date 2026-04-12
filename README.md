@@ -7,6 +7,7 @@
 
 https://photos.app.goo.gl/agNn1Mgh9iq5oP3p6
 
+---
 
 [MF]()
 - [Pools]()
@@ -16,6 +17,8 @@ https://photos.app.goo.gl/agNn1Mgh9iq5oP3p6
 -->
 
 ## 2026
+
+
 ---
 
 [Portland RJCC Spring JNRMF](https://photos.app.goo.gl/W5GNXSidCtzQ5LBz5)
@@ -25,6 +28,23 @@ https://photos.app.goo.gl/agNn1Mgh9iq5oP3p6
 
 ---
 
+[Rain City Spring RJCC JNRMF](https://photos.app.goo.gl/WhmhaCdKoZw1UMLXA)
+- [Pools](https://www.fencingtimelive.com/pools/details/D2B8F0A054714BE0A213474F15503B53/73F1ACEAD0954F098AFE1F617C1531EE/211D85934EA54971939A20866C0953F0)
+- [Tableau](https://www.fencingtimelive.com/tableaus/scores/D2B8F0A054714BE0A213474F15503B53/CDC6D68637034E4397357A6189824965)
+- [3/48](https://www.fencingtimelive.com/events/results/D2B8F0A054714BE0A213474F15503B53)
+
+---
+
+[February NAC JNRMF](https://photos.app.goo.gl/A6voXHFJcFWSncLb6)
+- [Pools](https://www.fencingtimelive.com/pools/details/190120A517EC45ECA2B34AFED6CCEF83/748E9D8042F5427A890F1DC9BCD5F040/F6EC1ED2DA4B4E6AADD638F78FC3A986)
+- [Tableau](https://www.fencingtimelive.com/tableaus/scores/190120A517EC45ECA2B34AFED6CCEF83/78AA61B9A6F84AEEBC55B2846784AD4C)
+- [103/214](https://www.fencingtimelive.com/events/results/190120A517EC45ECA2B34AFED6CCEF83)
+
+[February NAC DV1MF](https://photos.app.goo.gl/YRsgMVMWa1zAxE4L7)
+- [Pools](https://www.fencingtimelive.com/pools/details/58742BED48954C3798CBFD47A3F0FBA1/C6DEEBC0E0A2433C9CB57C180C73C64B/C9D7F4449FA74747B22AF79319605BC4)
+- [217/260](https://www.fencingtimelive.com/events/results/58742BED48954C3798CBFD47A3F0FBA1)
+
+---
 [Battle in Seattle D1AMF](https://photos.app.goo.gl/8J2XH8pJGGGJGN5a7)
 - [Pools](https://fencingtimelive.com/tableaus/scores/A4BFAA26F7474D308BAC3A546CC9D227/DE10190225A34F43AEAD315D8DB8D9C0)
 - [Tableau](https://fencingtimelive.com/tableaus/scores/A4BFAA26F7474D308BAC3A546CC9D227/DE10190225A34F43AEAD315D8DB8D9C0)
@@ -51,6 +71,8 @@ https://photos.app.goo.gl/agNn1Mgh9iq5oP3p6
 - [Pools](https://fencingtimelive.com/pools/details/0F414511125D4D448F8E196DB68750C0/E450E5EFAFE14EC2AFC80A2612F5271E/37FA7D98FE33442281AFB9E7F20B5758)
 - [Tableau](https://fencingtimelive.com/tableaus/scores/0F414511125D4D448F8E196DB68750C0/54C7BDC4B145456DAE2FB20966C2B5F0)
 - [2/30](https://fencingtimelive.com/events/results/0F414511125D4D448F8E196DB68750C0)
+
+---
 
 [November NAC CDTTMMF](https://photos.app.goo.gl/uKFgYSsXQCo3DsCL9)
 - [Tableau](https://fencingtimelive.com/tableaus/scores/E65DE612BFF14D2E881D52EAEE093234/9555E39278BF40968DBA5C302B0F240F)
