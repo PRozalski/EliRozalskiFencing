@@ -17,6 +17,12 @@ https://photos.app.goo.gl/agNn1Mgh9iq5oP3p6
 -->
 
 ## 2026
+
+[April NAC 2026 JNRMF](https://photos.app.goo.gl/9PEKMgHP9hN9PADv7)
+- [Pools](https://www.fencingtimelive.com/pools/details/F4B52172F5914C82AFCDF91C93DB586E/29EB217DB378410A99B406FFDF1F4855/01C1E2F3A6304AAF95EFA096CB8E0057)
+- [Tableau](https://www.fencingtimelive.com/tableaus/scores/F4B52172F5914C82AFCDF91C93DB586E/C9A2FAAAE19441BA8BE58CB8A1D9E5B7)
+- [100/176](https://www.fencingtimelive.com/events/results/F4B52172F5914C82AFCDF91C93DB586E)
+
 [April NAC 2026 DV1MF](https://photos.app.goo.gl/1wbWcMEGZUiXuTZX6)
 - [Pools](https://www.fencingtimelive.com/pools/details/044D5EB36D0C453FB7E5C7CE283065E0/C22B3C60C3FA4CC5965E62F8C9BC7A84/83ACA244793A46759C06B9565C106F2E)
 - [116/135](https://www.fencingtimelive.com/events/results/044D5EB36D0C453FB7E5C7CE283065E0)
