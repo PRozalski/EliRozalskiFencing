@@ -18,6 +18,13 @@ https://photos.app.goo.gl/agNn1Mgh9iq5oP3p6
 
 ## 2026
 
+[2026 Rain City Open Senior Mixed Foil](https://photos.app.goo.gl/WRMyQckHYkPF4NyD9)
+- [Pools](https://www.fencingtimelive.com/pools/details/DCA7296D164C4D8E922F9B4652AB4439/60ACD596155E4B97BD1B999FD392A93E/3DA2F95CB3F640819D8B3C2D69AFFEC6)
+- [Tableau](https://www.fencingtimelive.com/tableaus/scores/DCA7296D164C4D8E922F9B4652AB4439/A683F29482F34B27AF8ADC6C7E855CA7)
+- [1/41](https://www.fencingtimelive.com/events/results/DCA7296D164C4D8E922F9B4652AB4439)
+
+---
+
 [April NAC 2026 JNRMF](https://photos.app.goo.gl/9PEKMgHP9hN9PADv7)
 - [Pools](https://www.fencingtimelive.com/pools/details/F4B52172F5914C82AFCDF91C93DB586E/29EB217DB378410A99B406FFDF1F4855/01C1E2F3A6304AAF95EFA096CB8E0057)
 - [Tableau](https://www.fencingtimelive.com/tableaus/scores/F4B52172F5914C82AFCDF91C93DB586E/C9A2FAAAE19441BA8BE58CB8A1D9E5B7)
