@@ -18,6 +18,11 @@ https://photos.app.goo.gl/agNn1Mgh9iq5oP3p6
 
 ## 2026
 
+[placeholder for sjcc](https://photos.app.goo.gl/f9U9LmCGhFZBcmhq7)
+
+
+---
+
 [2026 Rain City Open Senior Mixed Foil](https://photos.app.goo.gl/WRMyQckHYkPF4NyD9)
 - [Pools](https://www.fencingtimelive.com/pools/details/DCA7296D164C4D8E922F9B4652AB4439/60ACD596155E4B97BD1B999FD392A93E/3DA2F95CB3F640819D8B3C2D69AFFEC6)
 - [Tableau](https://www.fencingtimelive.com/tableaus/scores/DCA7296D164C4D8E922F9B4652AB4439/A683F29482F34B27AF8ADC6C7E855CA7)
