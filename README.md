@@ -18,6 +18,8 @@ https://photos.app.goo.gl/agNn1Mgh9iq5oP3p6
 
 ## 2026
 
+[placeholder for 2026 Summer Nationals JNRMF](https://photos.app.goo.gl/f4Kr9KTPFoDtnwBR8)
+
 [placeholder for sjcc](https://photos.app.goo.gl/f9U9LmCGhFZBcmhq7)
 
 
