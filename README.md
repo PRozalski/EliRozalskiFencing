@@ -18,12 +18,33 @@ https://photos.app.goo.gl/agNn1Mgh9iq5oP3p6
 
 ## 2026
 
-[placeholder for 2026 Summer Nationals DV1MF](https://photos.app.goo.gl/V5QAa3pwo8BznskZA)
+[Portland August RJCC JNRMF](https://photos.app.goo.gl/EMxSQVBmKzFYTwxn6)
+- [Pools](https://www.fencingtimelive.com/pools/details/766CE2718DC1493DA0C539A91E4A2573/6BE8D83DDD66410594490C1D8B1C0B7B/A917098DAD824B82B5411D0329C99F5D)
+- [Tableau](https://www.fencingtimelive.com/tableaus/scores/766CE2718DC1493DA0C539A91E4A2573/08CED75E328C4B719808C06BF745FC83)
+- [1/35](https://www.fencingtimelive.com/events/results/766CE2718DC1493DA0C539A91E4A2573)
 
-[placeholder for 2026 Summer Nationals JNRMF](https://photos.app.goo.gl/f4Kr9KTPFoDtnwBR8)
+---
 
-[placeholder for sjcc](https://photos.app.goo.gl/f9U9LmCGhFZBcmhq7)
+[2026 Summer Nationals D1AMF](https://photos.app.goo.gl/EBP3rDcQg48qAmvY8)
+- [Pools](https://www.fencingtimelive.com/pools/details/69E082A3E60E456CBC852A190E9D91D6/159289C6EA894DF9B91177676C83F17E/4275047B4C0E4411BDCA13734E8F97F0)
+- [Tableau](https://www.fencingtimelive.com/tableaus/scores/69E082A3E60E456CBC852A190E9D91D6/C8685710021E40698D613E72C67479D9)
+- [51/126](https://www.fencingtimelive.com/events/results/69E082A3E60E456CBC852A190E9D91D6)
 
+[2026 Summer Nationals DV1MF](https://photos.app.goo.gl/V5QAa3pwo8BznskZA)
+- [Pools](https://www.fencingtimelive.com/pools/details/6793F23C70B74CC685B9CB0C372551AD/BDAB5704A8E14E618223877F86E940EE/55F5C76BAB114AC0BB726B731E13C1AE)
+- [143/184](https://www.fencingtimelive.com/events/results/6793F23C70B74CC685B9CB0C372551AD)
+
+[2026 Summer Nationals JNRMF](https://photos.app.goo.gl/f4Kr9KTPFoDtnwBR8)
+- [Pools](https://www.fencingtimelive.com/pools/details/3F21B290E85D47C2929E41DC4E347462/7118C4859A8E4D25993D425AEC52A182/74C60FFAD3414DFDA12EA12AE4FFC504)
+- [Tableau](https://www.fencingtimelive.com/tableaus/scores/3F21B290E85D47C2929E41DC4E347462/2E6F48FA47934992A2B8AC1022CFD56D)
+- [116/324](https://www.fencingtimelive.com/events/results/3F21B290E85D47C2929E41DC4E347462)
+
+---
+
+[2026 June SJCC JNRMF](https://photos.app.goo.gl/f9U9LmCGhFZBcmhq7)
+- [Pools](https://www.fencingtimelive.com/pools/details/500748927DD44100B79F606ABC121100/0D7951E774BB43468F94AD00D899275B/7C6BA73CC6164D8AAE7C5CA21123EC06)
+- [Tableau](https://www.fencingtimelive.com/tableaus/scores/500748927DD44100B79F606ABC121100/1DB4AA3B0BEC4535A7F5798FBB77A48E)
+- [51/202](https://www.fencingtimelive.com/events/results/500748927DD44100B79F606ABC121100)
 
 ---
 
