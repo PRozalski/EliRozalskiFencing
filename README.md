@@ -18,6 +18,18 @@ https://photos.app.goo.gl/agNn1Mgh9iq5oP3p6
 
 ## 2026
 
+[Fortune Fencing D1AMF](https://photos.app.goo.gl/RZR7aBCqZixtmugt7)
+- [Pools](https://www.fencingtimelive.com/pools/details/A10AB88B34474D81BB8390DC90438173/434901441DCF403DACF6B77E70B4D034/88FD1C1BB2D94265A3008FB34ABCF83D)
+- [Tableau](https://www.fencingtimelive.com/tableaus/scores/A10AB88B34474D81BB8390DC90438173/215D6BE70D4D4C18830195D02A3811EB)
+- [22/64](https://www.fencingtimelive.com/events/results/A10AB88B34474D81BB8390DC90438173)
+
+[Fortune Fencing JNRMF](https://photos.app.goo.gl/ec9pTLbST81ZbFLo6)
+- [Pools](https://www.fencingtimelive.com/pools/details/916300DFE3CB45068A5F9DD44F82BFC1/3B0AE761F94F4B35AB0F61CC115FD341/5842A5113C8443D48CD61926AF11FB59)
+- [Tableau](https://www.fencingtimelive.com/tableaus/scores/916300DFE3CB45068A5F9DD44F82BFC1/EE2761ADAA7D49B2BC722A4BF4005AFF)
+- [2/87](https://www.fencingtimelive.com/events/results/916300DFE3CB45068A5F9DD44F82BFC1)
+- [YouTube Final](https://www.youtube.com/watch?v=Wj5XeKDas0M)
+ ---
+
 [Portland August RJCC JNRMF](https://photos.app.goo.gl/EMxSQVBmKzFYTwxn6)
 - [Pools](https://www.fencingtimelive.com/pools/details/766CE2718DC1493DA0C539A91E4A2573/6BE8D83DDD66410594490C1D8B1C0B7B/A917098DAD824B82B5411D0329C99F5D)
 - [Tableau](https://www.fencingtimelive.com/tableaus/scores/766CE2718DC1493DA0C539A91E4A2573/08CED75E328C4B719808C06BF745FC83)
